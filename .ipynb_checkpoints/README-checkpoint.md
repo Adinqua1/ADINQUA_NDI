@@ -1,0 +1,1 @@
+"# ADINQUA_NDI" 
